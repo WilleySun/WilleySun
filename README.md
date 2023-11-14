@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @WilleySun
-- 👀 I’m interested in travel
+- 👀 I’m interested in many things, work on AI with life on exlore.
 - 🌱 I’m currently learning ski
 - 💞️ I’m looking to collaborate on "WFH"
 
